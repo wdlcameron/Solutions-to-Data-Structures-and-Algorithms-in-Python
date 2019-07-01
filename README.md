@@ -9,7 +9,7 @@ Current Progress (A new chapter is uploaded every 3-6 days):
 - Chapter 2 (Done)
 - Chapter 3 (Done)
 - Chapter 4 (Done)
-- Chapter 5
+- Chapter 5 (Done)
 - Chapter 6
 - Chapter 7
 - Chapter 8
